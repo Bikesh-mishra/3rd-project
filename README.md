@@ -1,1 +1,1 @@
-# 3rd-project
+# 3rd-project Intern Hub
